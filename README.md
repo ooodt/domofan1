@@ -1,1 +1,1 @@
-https://ooodt.github.io/domofan1/index.html
+https://ooodt.github.io/domofan1/
